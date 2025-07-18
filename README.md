@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Muhammad Jawad Hassan
-- 👀 I’m interested in Data... a lot of data..
+- 👀 I’m always up for exploring new Ideas.
 - 📫 How to reach me ... (Linkedin)[https://www.linkedin.com/in/the-jawad-hassan]
 - ⚡ Fun fact: I am always ready to work and tackle problems
 
